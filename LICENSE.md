@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative birdeye sniper bot | dex-sniping + simulation-mode, the #1 birdeye sniper bot. Includes dex-sniping and simulation-mode for a faster and
 
 
 
